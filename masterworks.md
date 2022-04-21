@@ -1,22 +1,30 @@
 [1960's]
 - Mr. Tambourine Man - Thr Byrds (1965)
 - Pet Sounds - The Beach Boys (1966)
+- Surrealistic Pillow - Jefferson Airplane (1967)
+- Cheap Thrills - Big Brother and The Holding Company (1968)
 - In the Court of the Crimson King - King Crimson (1969)
 - Abbey Road - The Beatles (1969)
 - Led Zeppelin - Led Zeppelin (1969)
 - Let It Bleed - The Rolling Stones (1969)
 
 [1970's]
+- Climbing! - Mountain (1970)
 - Free Live! - Free (1971)
+- Who's Next - The Who (1971)
 - Pictures at an Exhibition - Emerson, Lake & Palmer (1971)
 - Machine Head - Deep Purple (1972)
 - Thick as a Brick - Jethro Tull (1972)
+- Ashes Are Burning - Renaissance (1973)
 - The Dark Side of The Moon - Pink Floyd (1973)
+- Bad Company - Bad Company (1974)
 - Phenomenon - UFO (1974)
 - Raising - Ranibow (1976)
 
 [1980's]
 - Back in Black - AC/DC (1980)
+- Iron Maiden - Iron Maiden (1980)
+- 1984 - Van Halen (1984)
 - Master of Puppets - Metallica (1986)
 - Hysteria - Def Leppard (1987)
 - New Jersey - Bon Jovi (1988)
