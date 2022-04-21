@@ -27,6 +27,7 @@
 - Iron Maiden - Iron Maiden (1980)
 - 1984 - Van Halen (1984)
 - Master of Puppets - Metallica (1986)
+- Appetite for Destruction - Guns N' Roses (1987)
 - Hysteria - Def Leppard (1987)
 - New Jersey - Bon Jovi (1988)
 - Operation:Mindcrime - Queensrÿche (1988)
