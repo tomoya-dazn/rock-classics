@@ -11,20 +11,25 @@
 
 [1970's]
 - Climbing! - Mountain (1970)
+- Live Album - Grand Funk (1970)
 - Free Live! - Free (1971)
 - Who's Next - The Who (1971)
 - Pictures at an Exhibition - Emerson, Lake & Palmer (1971)
+- Close to the Edge - Yes (1972)
 - Machine Head - Deep Purple (1972)
+- The Rise and Fall of Ziggy Stardust and the Spiders from Mars - David Bowie (1972)
 - Thick as a Brick - Jethro Tull (1972)
 - Ashes Are Burning - Renaissance (1973)
 - The Dark Side of The Moon - Pink Floyd (1973)
 - Bad Company - Bad Company (1974)
 - Phenomenon - UFO (1974)
+- Suicide Sal - Maggie Bell (1975)
 - Raising - Ranibow (1976)
 
 [1980's]
 - Back in Black - AC/DC (1980)
 - Iron Maiden - Iron Maiden (1980)
+- The Michael Schenker Group - Michael Schenker Group (1980)
 - 1984 - Van Halen (1984)
 - Master of Puppets - Metallica (1986)
 - Appetite for Destruction - Guns N' Roses (1987)
