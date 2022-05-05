@@ -7,4 +7,5 @@
 - Rising - Rainbow (1976)
 [1980's]
 - Back in Black - AC / DC (1980)
+- New Jersey - Bon Jovi (1988)
 - Operation: Mindcrime - Queensrÿche (1988)
