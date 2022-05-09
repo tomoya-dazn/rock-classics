@@ -9,9 +9,11 @@
 - Led Zeppelin - Led Zeppelin (1969)
 [1970's]
 - Picutures at an Exhibition - Emerson, Lake & Parlmer (1971)
+- Close to the Edge - Yes (1972)
 - Machine Head - Deep Purple (1972)
 - Thick as a Brick - Jethro Tull (1972)
 - Ashes Are Burning - Renaissance (1973)
+- Pronounced 'Lĕh-'nérd 'Skin-'nérd - Lynyrd Skynyrd (1973)
 - The Dark Side of the Moon - Pink Floyd (1973)
 - Phenomenon - UFO (1974)
 - Rising - Rainbow (1976)
