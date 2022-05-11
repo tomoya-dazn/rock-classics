@@ -9,6 +9,7 @@
 - Led Zeppelin - Led Zeppelin (1969)
 [1970's]
 - Picutures at an Exhibition - Emerson, Lake & Parlmer (1971)
+- Who's Next - The Who (1971)
 - Close to the Edge - Yes (1972)
 - Machine Head - Deep Purple (1972)
 - Thick as a Brick - Jethro Tull (1972)
@@ -16,6 +17,7 @@
 - Pronounced 'Lĕh-'nérd 'Skin-'nérd - Lynyrd Skynyrd (1973)
 - The Dark Side of the Moon - Pink Floyd (1973)
 - Phenomenon - UFO (1974)
+- Queen II - Queen (1974)
 - Rising - Rainbow (1976)
 [1980's]
 - Back in Black - AC / DC (1980)
