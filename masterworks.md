@@ -13,6 +13,7 @@
 - シカゴの軌跡 - Chicago Transit Authority (1969)
 [1970's]
 - Climing! - Mountain (1970)
+- Live Album - Grand Funk (1970)
 - Free Live! - Free (1971)
 - Picutures at an Exhibition - Emerson, Lake & Parlmer (1971)
 - Who's Next - The Who (1971)
