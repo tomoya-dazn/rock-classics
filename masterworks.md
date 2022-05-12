@@ -17,8 +17,10 @@
 - Free Live! - Free (1971)
 - Picutures at an Exhibition - Emerson, Lake & Parlmer (1971)
 - Who's Next - The Who (1971)
+- Argus - Wishborn Ash (1972)
 - Close to the Edge - Yes (1972)
 - Machine Head - Deep Purple (1972)
+- Smokin' - Humble Pie (1972)
 - Thick as a Brick - Jethro Tull (1972)
 - Ashes Are Burning - Renaissance (1973)
 - Pronounced 'Lĕh-'nérd 'Skin-'nérd - Lynyrd Skynyrd (1973)
@@ -27,6 +29,7 @@
 - Queen II - Queen (1974)
 - Suicide Sal - Maggie Bell (1975)
 - Rising - Rainbow (1976)
+- Rocks - Aerosmith (1976)
 - Sad Wings of Destiny - Judas Priest (1976)
 [1980's]
 - Back in Black - AC / DC (1980)
@@ -37,3 +40,4 @@
 - Keeper of the Seven Keys: Part I - Helloween (1987)
 - New Jersey - Bon Jovi (1988)
 - Operation: Mindcrime - Queensrÿche (1988)
+- Skid Row - Skid Row (1989)
