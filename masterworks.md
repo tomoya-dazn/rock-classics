@@ -3,6 +3,7 @@
 - Surrealistic Pillow - Jefferson Airplane (1967)
 - Disraeli Gears - Cream (1967)
 - Cheap Thrills - Big Brothers and the Holding Company (1968)
+- Electric Ladyland - The Jimi Hendrix experience (1968)
 - Music from Big Pink - The Band (1968)
 - Truth - Jeff Beck Group (1968)
 - In the Court of the Crimson King - King Crimson (1969)
@@ -13,7 +14,6 @@
 - シカゴの軌跡 - Chicago Transit Authority (1969)
 [1970's]
 - Climing! - Mountain (1970)
-- Live Album - Grand Funk (1970)
 - Free Live! - Free (1971)
 - Picutures at an Exhibition - Emerson, Lake & Parlmer (1971)
 - Who's Next - The Who (1971)
