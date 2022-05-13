@@ -14,6 +14,7 @@
 - シカゴの軌跡 - Chicago Transit Authority (1969)
 [1970's]
 - Climing! - Mountain (1970)
+- Déjà Vu - Crosby, Stills, Nash & Young (1970)
 - Free Live! - Free (1971)
 - Picutures at an Exhibition - Emerson, Lake & Parlmer (1971)
 - Who's Next - The Who (1971)
@@ -35,6 +36,7 @@
 - Back in Black - AC / DC (1980)
 - Iron Maiden - Iron Maiden (1980)
 - 1984 - Van Halen (1984)
+- Master of Puppets - Metallica (1986)
 - Appetite for Destruction - Guns N' Roses (1987)
 - Hysteria - Def Leppard (1987)
 - Keeper of the Seven Keys: Part I - Helloween (1987)
