@@ -28,6 +28,7 @@
 - The Dark Side of the Moon - Pink Floyd (1973)
 - Phenomenon - UFO (1974)
 - Queen II - Queen (1974)
+- Alive! - Kiss (1975)
 - Suicide Sal - Maggie Bell (1975)
 - Rising - Rainbow (1976)
 - Rocks - Aerosmith (1976)
