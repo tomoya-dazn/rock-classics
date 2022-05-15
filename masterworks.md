@@ -38,3 +38,5 @@
 - Keeper of the Seven Keys: Part I - Helloween (1987)
 - New Jersey - Bon Jovi (1988)
 - Operation: Mindcrime - Queensrÿche (1988)
+[1990's]
+- Go! - Fair Warning (1997)
