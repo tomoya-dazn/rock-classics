@@ -40,3 +40,4 @@
 - Operation: Mindcrime - Queensrÿche (1988)
 [1990's]
 - Go! - Fair Warning (1997)
+- Metropolis Pt. 2 - Dream Theater (1999)
