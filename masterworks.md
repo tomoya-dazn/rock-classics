@@ -1,5 +1,7 @@
 [1960's]
+- Mr. Tambourine Man - The Byrds (1965)
 - Pet Sounds - The Beach Boys (1966)
+- Roger the Engineer - The Yardbirds (1966)
 - Surrealistic Pillow - Jefferson Airplane (1967)
 - Disraeli Gears - Cream (1967)
 - The Doors - The Doors (1967)
@@ -25,7 +27,9 @@
 - Machine Head - Deep Purple (1972)
 - Smokin' - Humble Pie (1972)
 - Thick as a Brick - Jethro Tull (1972)
+- The Rise and Fall of Ziggy Stardust and the Spiders from Mars - David Bowie (1972)
 - Ashes Are Burning - Renaissance (1973)
+- Live in Japan - Beck, Bogert & Appice (1973)
 - Pronounced 'Lĕh-'nérd 'Skin-'nérd - Lynyrd Skynyrd (1973)
 - The Dark Side of the Moon - Pink Floyd (1973)
 - Phenomenon - UFO (1974)
@@ -46,7 +50,10 @@
 - Keeper of the Seven Keys: Part I - Helloween (1987)
 - New Jersey - Bon Jovi (1988)
 - Operation: Mindcrime - Queensrÿche (1988)
+- Dr.Feelgood - Mötley Crüe (1989)
 - Skid Row - Skid Row (1989)
 [1990's]
+- Lean into It - Mr.Big (1991)
 - Go! - Fair Warning (1997)
+- Bring 'Em Out Live - Firehouse (1999)
 - Metropolis Pt. 2 - Dream Theater (1999)
