@@ -2,6 +2,7 @@
 - Pet Sounds - The Beach Boys (1966)
 - Surrealistic Pillow - Jefferson Airplane (1967)
 - Disraeli Gears - Cream (1967)
+- The Doors - The Doors (1967)
 - Cheap Thrills - Big Brothers and the Holding Company (1968)
 - Electric Ladyland - The Jimi Hendrix experience (1968)
 - Music from Big Pink - The Band (1968)
@@ -15,6 +16,7 @@
 [1970's]
 - Climing! - Mountain (1970)
 - Déjà Vu - Crosby, Stills, Nash & Young (1970)
+- Layla and Other Assorted Love Songs - Derek and the Dominos (1970)
 - Free Live! - Free (1971)
 - Picutures at an Exhibition - Emerson, Lake & Parlmer (1971)
 - Who's Next - The Who (1971)
@@ -36,6 +38,7 @@
 [1980's]
 - Back in Black - AC / DC (1980)
 - Iron Maiden - Iron Maiden (1980)
+- The Michael Schenker Group - Michael Schenker Group (1980)
 - 1984 - Van Halen (1984)
 - Master of Puppets - Metallica (1986)
 - Appetite for Destruction - Guns N' Roses (1987)
