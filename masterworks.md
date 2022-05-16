@@ -8,6 +8,7 @@
 - Cheap Thrills - Big Brothers and the Holding Company (1968)
 - Electric Ladyland - The Jimi Hendrix experience (1968)
 - Music from Big Pink - The Band (1968)
+- The Kinks are the Village Green Preservation Society - The Kinks (1968)
 - Truth - Jeff Beck Group (1968)
 - In the Court of the Crimson King - King Crimson (1969)
 - Abbey Road - The Beatles (1969)
