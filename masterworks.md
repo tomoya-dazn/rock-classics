@@ -47,3 +47,6 @@
 - New Jersey - Bon Jovi (1988)
 - Operation: Mindcrime - Queensrÿche (1988)
 - Skid Row - Skid Row (1989)
+[1990's]
+- Go! - Fair Warning (1997)
+- Metropolis Pt. 2 - Dream Theater (1999)
