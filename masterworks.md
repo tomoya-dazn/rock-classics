@@ -47,6 +47,7 @@
 - Brizzard of Ozz - Ozzy Osbourne (1981)
 - 1984 - Van Halen (1984)
 - Master of Puppets - Metallica (1986)
+- Reign in Blood - Slayer (1986)
 - Appetite for Destruction - Guns N' Roses (1987)
 - Hysteria - Def Leppard (1987)
 - Keeper of the Seven Keys: Part I - Helloween (1987)
