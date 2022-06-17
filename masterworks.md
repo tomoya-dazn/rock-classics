@@ -40,6 +40,7 @@
 - Rising - Rainbow (1976)
 - Rocks - Aerosmith (1976)
 - Sad Wings of Destiny - Judas Priest (1976)
+- Jailbreak - Thin Lizzy (1976)
 [1980's]
 - Back in Black - AC / DC (1980)
 - Iron Maiden - Iron Maiden (1980)
