@@ -30,6 +30,7 @@
 - Thick as a Brick - Jethro Tull (1972)
 - The Rise and Fall of Ziggy Stardust and the Spiders from Mars - David Bowie (1972)
 - Ashes Are Burning - Renaissance (1973)
+- Band on the Run -  Paul McCartney and Wings (1973)
 - Live in Japan - Beck, Bogert & Appice (1973)
 - Pronounced 'Lĕh-'nérd 'Skin-'nérd - Lynyrd Skynyrd (1973)
 - The Dark Side of the Moon - Pink Floyd (1973)
