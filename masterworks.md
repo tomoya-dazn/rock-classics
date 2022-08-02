@@ -59,6 +59,7 @@
 - Skid Row - Skid Row (1989)
 [1990's]
 - Lean into It - Mr.Big (1991)
+- A Boy Named Goo - Goo Goo Dolls (1995)
 - Go! - Fair Warning (1997)
 - Bring 'Em Out Live - Firehouse (1999)
 - Metropolis Pt. 2 - Dream Theater (1999)
