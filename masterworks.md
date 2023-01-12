@@ -46,7 +46,7 @@
 - Back in Black - AC / DC (1980)
 - Iron Maiden - Iron Maiden (1980)
 - The Michael Schenker Group - Michael Schenker Group (1980)
-- Brizzard of Ozz - Ozzy Osbourne (1981)
+- Blizzard of Ozz - Ozzy Osbourne (1981)
 - 1984 - Van Halen (1984)
 - Master of Puppets - Metallica (1986)
 - Reign in Blood - Slayer (1986)
@@ -59,6 +59,7 @@
 - Skid Row - Skid Row (1989)
 [1990's]
 - Lean into It - Mr.Big (1991)
+- When You're A Tuesday Girl - Tuesday Girls (1994)
 - A Boy Named Goo - Goo Goo Dolls (1995)
 - Go! - Fair Warning (1997)
 - Bring 'Em Out Live - Firehouse (1999)
