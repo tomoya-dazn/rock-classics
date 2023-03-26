@@ -16,6 +16,7 @@
 - Let It Bleed - The Rolling Stones (1969)
 - Ssssh - Ten Years After (1969)
 - シカゴの軌跡 - Chicago Transit Authority (1969)
+---
 [1970's]
 - Climing! - Mountain (1970)
 - Déjà Vu - Crosby, Stills, Nash & Young (1970)
@@ -42,6 +43,7 @@
 - Rocks - Aerosmith (1976)
 - Sad Wings of Destiny - Judas Priest (1976)
 - Jailbreak - Thin Lizzy (1976)
+---
 [1980's]
 - Back in Black - AC / DC (1980)
 - Iron Maiden - Iron Maiden (1980)
@@ -57,6 +59,7 @@
 - Operation: Mindcrime - Queensrÿche (1988)
 - Dr.Feelgood - Mötley Crüe (1989)
 - Skid Row - Skid Row (1989)
+---
 [1990's]
 - Lean into It - Mr.Big (1991)
 - When You're A Tuesday Girl - Tuesday Girls (1994)
